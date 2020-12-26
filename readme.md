@@ -1,0 +1,1 @@
+Bot desarollado por dp / <@!411706137877020682>
